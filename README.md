@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @risska
 - 👀 I’m interested in money
 - 🌱 I’m currently learning pharmacy
-- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me email riska101203@gmail.com
 
 <!---
